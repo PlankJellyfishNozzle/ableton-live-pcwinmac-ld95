@@ -1,4 +1,4 @@
-# 
+# Exclusivo Ableton Live predefinições para Mac OS | Seguro Ableton Live predefinições para PC Windows. Com gravação e câmera lenta — otimizado para máximo desempenho em cada plataforma.
 
 
 
